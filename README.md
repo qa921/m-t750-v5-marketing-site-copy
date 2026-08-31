@@ -1,2 +1,1 @@
-# m-t750-v5-marketing-site-copy
-M-T750-V5 marketing copy reference candidate.
+# Marketing copy — M-T750-V5\nCurrent headline candidate: "Operate with confidence." Copy requires product review before inclusion.
